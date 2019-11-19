@@ -1,0 +1,2 @@
+# Sun Tzu quotes
+
